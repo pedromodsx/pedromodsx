@@ -1,4 +1,4 @@
-What'up! I'm developer and member of the [@moonezpay](https://app.moonezpay.com/) team. I have experience in various technologies.
+What'up! I'm developer and member of the [@supremo.online](https://supremo.online) team. I have experience in various technologies.
 
 ### Languages
 
